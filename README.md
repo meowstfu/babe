@@ -1,4 +1,4 @@
 babe
 ====
 
-sup nigga
+sup
